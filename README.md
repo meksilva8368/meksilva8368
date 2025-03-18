@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @jeffeson Silva
+  
 👀 Estou interessado em tecnologia, empreendedorismo e novas oportunidades de negócio. Sempre em busca de inovação!
 
 🌱 Atualmente estou aprendendo mais sobre marketing digital, vendas online e inteligência artificial para aplicar em meus projetos.
